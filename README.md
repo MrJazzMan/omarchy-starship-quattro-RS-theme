@@ -1,0 +1,1 @@
+# omarchy-starship-quattro-RS-theme
